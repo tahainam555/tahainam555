@@ -2,6 +2,10 @@
 
 ---
 
+🚀AI ENTHUSIAST| MACHINE LEARNING| C++ and PYTHON PROGRAMMER
+
+---
+
 ## 🚀 About Me
 
 🔧 Passionate about creating efficient, real-world solutions with **C++, Python**, and **AI**.  
